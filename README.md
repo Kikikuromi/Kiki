@@ -20,6 +20,8 @@ someone I dont know. [only my friends]
 
 
 here more info 
-[Straight Women , Age 21 , a Biological Female , and MAGA Supporter]
+[Straight Women , Age 21 ,
+a Biological Female ,
+and MAGA Supporter]
 
 
