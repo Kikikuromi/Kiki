@@ -13,6 +13,13 @@
 ![1000006489](https://github.com/user-attachments/assets/095c111d-ffce-4e61-a685-0d61682c34b1)
 
 
+I love König and Ghost but I don't ship them i like M4F [Male and Female just my preference] 
 
-𝐆𝐨𝐨𝐝𝐛𝐲𝐞. .
+*Please don't ship me with anyone or 
+someone I dont know. [only my friends]
+
+
+here more info 
+[Straight Women , Age 21 , a Biological Female , and MAGA Supporter]
+
 
